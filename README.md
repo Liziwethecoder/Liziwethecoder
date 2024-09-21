@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Liziwethecoder
-- 👀 I’m interested in ..in life
+  
 - 🌱 I’m currently learning ...
 - 💞️ 
 - 📫 How to reach me ...liziwemshuqwana31@gmail.com 
